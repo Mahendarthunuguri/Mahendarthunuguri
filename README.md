@@ -2,7 +2,6 @@
 - 👀 I’m interested in Business analyst and data analyst roles
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on my future growth
-- 📫 How to reach m
   
 
 <!---
